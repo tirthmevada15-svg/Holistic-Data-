@@ -1,7 +1,7 @@
 # 🎥 Project Demonstration Video
 
 👉 **Watch Full Project Explanation Here:**  
-[🔗 Click to Watch Video]((https://drive.google.com/file/d/1mgZmSDpZ0kQ7wdrC4Xy-vbtFZkpf6Lux/view?usp=sharing))
+(https://drive.google.com/file/d/1mgZmSDpZ0kQ7wdrC4Xy-vbtFZkpf6Lux/view?usp=sharing)
 
 ---
 
